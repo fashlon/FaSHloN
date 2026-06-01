@@ -1,6 +1,6 @@
 <div align="center">
 
-[FaSHioN username origin](https://music.youtube.com/watch?v=GCkhFdMdGOY)
+[My username origin](https://music.youtube.com/watch?v=GCkhFdMdGOY)
 
 내 티, five bucks, 바지는 만원
 
