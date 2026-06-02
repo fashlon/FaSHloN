@@ -6,7 +6,7 @@
 
 [zai](https://github.com/verifiedreality) [xy](https://github.com/stellariism) [cal](https://github.com/EliotHX) + [Papa](https://github.com/venzqs) and [bri](https://github.com/romanticgenocide)
 
-<img width="426" height="424" alt="Image" src="https://github.com/user-attachments/assets/0e6c9135-6e73-4e92-91ae-dab834543f6f" />
+<img width="326" height="324" alt="Image" src="https://github.com/user-attachments/assets/0e6c9135-6e73-4e92-91ae-dab834543f6f" />
 
 [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
