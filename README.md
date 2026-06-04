@@ -12,6 +12,4 @@
 
 ----------------------
 
-<img width="534" height="285" alt="Image" src="brek.png" />
-
-bonus clip EXPOSING [zai](https://github.com/verifiedreality)
+[bonus](https://file.garden/aDE5ND_ktCALOKHu/brek.png) clip EXPOSING [zai](https://github.com/verifiedreality)
