@@ -12,4 +12,4 @@
 
 ----------------------
 
-[bonus](https://file.garden/aDE5ND_ktCALOKHu/brek.png) clip EXPOSING [zai](https://github.com/verifiedreality)
+[bonus](https://file.garden/aDE5ND_ktCALOKHu/brek.png) clip EXPOSING [zai](https://github.com/verifiedreality). if yu drank coke, and swallowed mentos, what would
