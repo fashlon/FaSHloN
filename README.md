@@ -12,4 +12,4 @@
 
 ----------------------
 
-[bonus](https://file.garden/aDE5ND_ktCALOKHu/brek.png) clip EXPOSING [zai](https://github.com/naibluver). 
+[bonus](https://file.garden/aDE5ND_ktCALOKHu/brek.png) clip EXPOSING [zai](https://github.com/naibluver) and [exposing](https://file.garden/aDE5ND_ktCALOKHu/island) the [cals](https://github.com/DASElN)
