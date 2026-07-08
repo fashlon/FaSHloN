@@ -16,4 +16,4 @@
 
 ----------
 
-Why would you lie? I dont understand anything. We were so nice to you. I saw you on Pony Town.
+Why would you lie? I dont understand anything. Dont you trust us? We were so nice to you. I saw you on Pony Town.
