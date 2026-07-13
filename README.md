@@ -12,4 +12,4 @@ $\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
  ꪆৎ
 
-[zai](https://github.com/naibluver) [xy](https://github.com/stellariism) [cal](https://github.com/EliotHX) and my [Papa](https://github.com/venzqs) 
+໒꒰ྀ [zai](https://github.com/naibluver) [xy](https://github.com/stellariism) [cal](https://github.com/EliotHX) and  [papa](https://github.com/venzqs) are my family ! 
