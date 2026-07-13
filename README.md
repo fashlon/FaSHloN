@@ -10,6 +10,6 @@ $\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
 ----------------------
 
- ᡣ𐭩 . ꪆৎ ˚⋅
+ ꪆৎ
 
 [zai](https://github.com/naibluver) [xy](https://github.com/stellariism) [cal](https://github.com/EliotHX) and my [Papa](https://github.com/venzqs) 
