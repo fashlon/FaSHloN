@@ -1,10 +1,8 @@
 <div align="center">
 
-[My username origin](https://music.youtube.com/watch?v=GCkhFdMdGOY)
+[original FaSHIoN](https://music.youtube.com/watch?v=GCkhFdMdGOY)
 
-내 티, five bucks, 바지는 만원
-
-[zai](https://github.com/naibluver) [xy](https://github.com/stellariism) [cal](https://github.com/EliotHX) + [Papa](https://github.com/venzqs) 
+$\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
 <img width="326" height="324" alt="Image" src="https://github.com/user-attachments/assets/0e6c9135-6e73-4e92-91ae-dab834543f6f" />
 
@@ -12,6 +10,6 @@
 
 ----------------------
 
-[bonus](https://file.garden/aDE5ND_ktCALOKHu/brek.png) clip EXPOSING [zai](https://github.com/naibluver) and [exposing](https://file.garden/aDE5ND_ktCALOKHu/island) the [cals](https://github.com/DASElN)
+ ᡣ𐭩 . ꪆৎ ˚⋅
 
-
+[zai](https://github.com/naibluver) [xy](https://github.com/stellariism) [cal](https://github.com/EliotHX) and my [Papa](https://github.com/venzqs) 
