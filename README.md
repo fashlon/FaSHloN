@@ -8,7 +8,7 @@
 
 <img width="326" height="324" alt="Image" src="https://github.com/user-attachments/assets/0e6c9135-6e73-4e92-91ae-dab834543f6f" />
 
-🍓 [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
+[rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) 𐔌՞. .՞𐦯 [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
 ----------------------
 
