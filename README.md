@@ -1,6 +1,6 @@
 <div align="center">
 
-[original FaSHIoN](https://music.youtube.com/watch?v=GCkhFdMdGOY)
+[FaSHIoN](https://music.youtube.com/watch?v=GCkhFdMdGOY) VS [IWALY](https://youtu.be/f-KLYLZ17Wo?si=hpF8HO7wpoEWhbP9)
 
 $\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
