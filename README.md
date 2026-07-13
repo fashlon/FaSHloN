@@ -12,4 +12,6 @@ $\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
  ꪆৎ
 
-໒꒰ྀ young horse [zai](https://github.com/naibluver) , my kuyas [xy](https://github.com/navistel) [cal](https://github.com/DASElN) , and  [papa](https://github.com/venzqs) are my family ! We are all living in a big fat nest #SOS 
+໒꒰ྀ young horse [zai](https://github.com/naibluver) , my kuyas [xy](https://github.com/navistel) [cal](https://github.com/DASElN) , and  [papa](https://github.com/venzqs) are my family ! 
+
+We are all living in a big fat nest #SOS 
