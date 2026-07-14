@@ -8,6 +8,8 @@ $\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
 [rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) 𐔌՞. .՞𐦯 [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
+$\color{#9bd0de}{\textbf{always on offline mode}}$ $\color{#f6d5e3}{\textbf{♡}}$ $\color{#9eb0cf}{\textbf{semi verbal}}$
+
 ----------------------
 
  ꪆৎ
@@ -15,3 +17,4 @@ $\color{#f6d5e3}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 ໒꒰ྀ young horse [zai](https://github.com/naibluver) , my kuyas [xy](https://github.com/navistel) [cal](https://github.com/DASElN) , and  [papa](https://github.com/venzqs) are my family ! 
 
 We are all living in a big fat nest #SOS 
+
