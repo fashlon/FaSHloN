@@ -6,7 +6,7 @@ $\color{#c3ceea}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
 
 <img src="meeee.png">
 
-[rentry](https://rentry.co/mizisuake) [click](https://arab.org/click-to-help/environment) 𐔌՞. .՞𐦯 [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
+ [click](https://arab.org/click-to-help/environment) 𐔌՞. .՞𐦯 [clickx2](https://arab.org/click-to-help/palestine) [tree](https://linktr.ee/karinacchi)
 
 $\color{#f6d5e3}{\textbf{HASHTAG cuddlelife}}$ $\color{#ffffff}{\textbf{♡}}$ $\color{#d7c6e5}{\textbf{semi verbal}}$
 
