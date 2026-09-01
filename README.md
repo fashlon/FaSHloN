@@ -2,7 +2,7 @@
 
 [IWALY](https://youtu.be/f-KLYLZ17Wo?si=hpF8HO7wpoEWhbP9)
 
-$\color{#c3ceea}{\textbf{그걸 놓친 넌 바보, oh, you fool}}$
+$\color{#c3ceea}{\textbf{i make em famous i call dat FaSHioN}}$
 
 <img src="meeee.png">
 
