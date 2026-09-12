@@ -12,9 +12,3 @@ $\color{#c3ceea}{\textbf{i make em famous i call dat FaSHioN}}$
 
 $\color{#f6d5e3}{\textbf{HASHTAG cuddlelife}}$ $\color{#ffffff}{\textbf{♡}}$ $\color{#d7c6e5}{\textbf{semi verbal}}$
 
-----------------------
-
- ꪆৎ
-
-໒꒰ྀ young horse [zai](https://github.com/naibluver) , my kuyas [xy](https://github.com/navistel) [cal](https://github.com/DASElN) , and  [papa](https://github.com/venzqs) are my family ! 
-
