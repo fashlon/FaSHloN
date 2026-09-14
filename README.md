@@ -1,6 +1,6 @@
 <div align="center">
 
-wyd abt #healing in backrooms
+wyd abt #healing in backrooms guys pls chat me abt teh mimic im og.. 
 
 <img src="wyd.png">
 
