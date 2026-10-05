@@ -1,9 +1,7 @@
 <div align="center">
 
-wyd abt #healing in backrooms guys pls chat me abt teh mimic im og.. 
+<img width="680" height="384" alt="Image" src="https://github.com/user-attachments/assets/1b80d754-2c7b-4591-b6e1-fedf6690bd1c" />
 
-<img src="wyd.png">
+ [cal](https://github.com/DASElN) [zai](https://github.com/naibluver) [xy](https://github.com/navistel) [dad](https://github.com/venzqs)
 
- [cal](https://github.com/DASElN) [me](https://github.com/FaSHloN) [zai](https://github.com/naibluver) [xy](https://github.com/navistel) [dad](https://github.com/venzqs)
-
-semiverbal cuddler cuddlelife cuddle chan cutest being ever pls cuddle 
+$\color{#cfbed4}{\textbf{𝙨𝙚𝙢𝙞𝙫𝙚𝙧𝙗𝙖𝙡 . 𝐜𝐮𝐝𝐝𝐥𝐞𝐫 }}$
