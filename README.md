@@ -1,6 +1,6 @@
 <div align="center">
 
-if i ever had the chance to ask [you](https://github.com/the-yardd), could we ever?
+in a field of flowers with [you](https://github.com/the-yardd)
 
 <img src="ever.jpg">
 
