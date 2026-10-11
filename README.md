@@ -1,6 +1,6 @@
 <div align="center">
 
-in the middle of a ballroom with [you](https://github.com/the-yardd)
+in the middle of a ballroom with my [evelyn](https://github.com/the-yardd)
 
 <img src="ever.jpg">
 
