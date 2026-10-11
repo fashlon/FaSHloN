@@ -1,6 +1,6 @@
 <div align="center">
 
-in a field of flowers with [you](https://github.com/the-yardd)
+in the middle of a ballroom with [you](https://github.com/the-yardd)
 
 <img src="ever.jpg">
 
