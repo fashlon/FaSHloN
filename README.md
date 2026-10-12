@@ -4,5 +4,5 @@ in the middle of a ballroom with my [evelyn](https://github.com/the-yardd)
 
 <img src="ever.jpg">
 
- [cal](https://github.com/DASElN) [zai](https://github.com/naibluver) [xy](https://github.com/navistel) [dad](https://github.com/venzqs)
+ [cal](https://github.com/DASElN) [zai](https://github.com/naibluver) [xy](https://github.com/navistel) [dad](https://github.com/venzqs) + [art](https://parfaillery.straw.page/)
 
